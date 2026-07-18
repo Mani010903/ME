@@ -14,5 +14,5 @@ I enjoy exploring new technologies and creating projects that combine software e
 📌 Connect with me:
 
 * GitHub: https://github.com/Mani010903
-* LinkedIn: Add your LinkedIn profile link
+* LinkedIn: (https://www.linkedin.com/in/mani-gupta-088a702b5/)
 
